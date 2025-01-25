@@ -8,19 +8,19 @@
 
 <a href="https://cutt.ly/Ye357QYl" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/9K3hz1HoiXrvb1ylxAzgGF5tgPo.jpg" alt="" style="max-width: 100%;"></a></p>
 
-Companion is a historical war film set during the 1965 Indo-Pakistan War, focusing on India's airstrike against the Sargodha airbase, marking the first major airstrike by India. The film showcases the bravery and tactical maneuvers of the Indian Air Force during this critical operation.
+Companion is a sci-fi thriller directed by Drew Hancock. The film follows Iris, portrayed by Sophie Thatcher, who becomes entangled in a mysterious and dangerous situation involving advanced technology and artificial intelligence.
 
-Release Date: January 24, 2025
+Release Date: January 31, 2025
 
-Director: Abhishek Anil Kapur, Sandeep Kewlani
+Director: Drew Hancock
 
-Producers: Dinesh Vijan, Amar Kaushik
+Producers: Roy Lee, Zach Cregger, Raphael Margules, J.D. Lifshitz, Josh Mack
 
-Distributor: PVR Inox Pictures
+Distributor: Warner Bros. Pictures
 
-Budget: $20 million
+Budget: $... million
 
-Music by: Tanishk Bagchi (songs), Justin Varghese (background score)
+Music by: Hrishikesh Hirway
 
 W𝚑𝚎𝚛𝚎 𝚝𝚘 𝚆𝚊𝚝𝚌𝚑 Companion 𝚕𝚊𝚝𝚎𝚜𝚝 𝚜𝚞𝚙𝚎𝚛𝚗𝚊𝚝𝚞𝚛𝚊𝚕 𝙰 𝚝𝚛𝚒𝚋𝚊𝚕 𝚠𝚊𝚛𝚛𝚒𝚘𝚛'𝚜 𝚏𝚒𝚎𝚛𝚌𝚎 𝚜𝚝𝚛𝚞𝚐𝚐𝚕𝚎 𝚝𝚘 𝚜𝚊𝚟𝚎 his 𝚙𝚎𝚘𝚙𝚕𝚎 𝚊 𝚖𝚒𝚕𝚕𝚎𝚗𝚗𝚒𝚞𝚖 𝚊𝚐𝚘 𝚒𝚜 𝚖𝚢𝚜𝚝𝚎𝚛𝚒𝚘𝚞𝚜𝚕𝚢 𝚕𝚒𝚗𝚔𝚎𝚍 𝚝𝚘 𝚊 𝚜𝚑𝚊𝚍𝚘𝚠 𝚌𝚘𝚙'𝚜 𝚙𝚎𝚛𝚒𝚕𝚘𝚞𝚜 𝚚𝚞𝚎𝚜𝚝 𝚒𝚗 𝚝𝚑𝚎 𝚙𝚛𝚎𝚜𝚎𝚗𝚝 𝙼𝚘𝚟𝚒𝚎 Companion 𝚊𝚝 𝚑𝚘𝚖𝚎. Companion 𝟸𝟶𝟸𝟺 𝚊𝚟𝚊𝚒𝚕𝚋𝚕𝚎 𝚘𝚗 𝚊𝚊𝚕 𝚝𝚢𝚙𝚎 𝚘𝚏 𝚙𝚕𝚊𝚝𝚎𝚏𝚘𝚛𝚖 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚂𝚝𝚛𝚎𝚊𝙼 𝚘𝚗 𝙿𝚎𝚊𝚌𝚘𝚌𝚔, 𝙷𝙱𝙾 𝙼𝚊𝚡, 𝙽𝚎𝚝𝚏𝚕𝚒𝚡 𝚘𝚛 𝙳𝚒𝚜𝚗𝚎𝚢 𝙿𝚕𝚞𝚜? Yes we have found 𝚛𝚎𝚊𝚕 𝚊𝚗𝚍 𝚐𝚎𝚗𝚞𝚊𝚕 𝚜𝚝𝚛𝚎𝚖𝚊𝚒𝚗𝚐 𝚙𝚕𝚊𝚝𝚎𝚏𝚘𝚛𝚖 𝚠𝚑𝚎𝚛𝚎 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚠𝚊𝚝𝚌𝚑 𝚊𝚗𝚍 𝚍𝚠𝚗𝚕𝚍 𝚎𝚊𝚜𝚒𝚕𝚢.
 
